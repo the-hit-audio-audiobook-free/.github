@@ -29,4 +29,4 @@ Julie Weaver is an award-winning romance author known for her compelling charact
 
 ---
 
-**[Listen on Audible](https://www.audible.com/pd/B0D9KP4CPK)**  
+**[Play Free](https://amzn.to/4fTTAfH)**  
