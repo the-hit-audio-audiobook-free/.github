@@ -30,3 +30,9 @@ Julie Weaver is an award-winning romance author known for her compelling charact
 ---
 
 **[Play Free](https://amzn.to/4fTTAfH)**  
+**[The Hit Free](https://amzn.to/4jem0nD)**  
+
+[![Play Free](https://img.shields.io/badge/Play_Free-%2300C853?style=for-the-badge)](https://amzn.to/4fTTAfH)
+
+[![The Hit Free](https://img.shields.io/badge/The_Hit_Free-%2300C853?style=for-the-badge)](https://amzn.to/4jem0nD)
+
